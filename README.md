@@ -1,0 +1,2 @@
+# NEWGAME
+ for skills cafe
